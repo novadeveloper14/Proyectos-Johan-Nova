@@ -1,2 +1,2 @@
-# Proyectos-Johan-Nova
+jnovag.com
 paginas de Johan Nova
